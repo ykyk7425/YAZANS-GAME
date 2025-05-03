@@ -1,0 +1,1 @@
+this is how to download and lunch the game first on chromebook press on the zip and press view rar to download after that press untitled and untitled and dist and then index.html on pc press view rar to download after that press untitled and untitled and dist and then index 
